@@ -1,8 +1,6 @@
 # Mozilla_WOW_2017
 This is the repo for the most AWESOME PAR-TAY EVERRR!!!!
-
 \#OPEN_PARTY
-
 \never
 \gone
 \give
@@ -18,3 +16,4 @@ This is the repo for the most AWESOME PAR-TAY EVERRR!!!!
 
 Fantastic
 
+https://media.giphy.com/media/LXONhtCmN32YU/giphy.gif
