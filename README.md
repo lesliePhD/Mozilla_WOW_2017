@@ -10,4 +10,6 @@ This is the repo for the most AWESOME PAR-TAY EVERRR!!!!
 \gone
 \let
 \you
+
+\up
 \down
